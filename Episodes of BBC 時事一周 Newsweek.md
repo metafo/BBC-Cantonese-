@@ -1,5 +1,41 @@
 # Episodes of BBC 時事一周 Newsweek
 
+[![時事一周 2022年11月5日12:00 GMT （最後廣播）](https://cachedimages.podchaser.com/128x128/aHR0cDovL2ljaGVmLmJiY2kuY28udWsvaW1hZ2VzL2ljLzMwMDB4MzAwMC9wMGQzeDl6OC5qcGc%3D/aHR0cHM6Ly93d3cucG9kY2hhc2VyLmNvbS9pbWFnZXMvbWlzc2luZy1pbWFnZS5wbmc%3D)](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/20221151200-gmt-154388319)
+
+### [時事一周 2022年11月5日12:00 GMT （最後廣播）](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/20221151200-gmt-154388319)
+
+
+
+
+
+
+
+[7 days ago](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/20221151200-gmt-154388319)[59m 59s](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/20221151200-gmt-154388319)
+
+本周節目內容：南韓首爾萬聖節人踩人慘劇 | 印度吊橋崩塌傷亡嚴重 | 中國鄭州蘋果代工商工人出逃 | 英國生活點滴：結束篇 - 回首向來蕭瑟處 | 專題：幾位主持人回顧《時事一周》 | 記者來鴻：塔吉克斯坦養蜂的重要 | 華人談天下：中國專家赴台治療大熊貓
+
+
+
+
+
+**PLAY EPISODE**
+
+[![時事一周 2022年10月29日12:00 GMT](https://cachedimages.podchaser.com/128x128/aHR0cDovL2ljaGVmLmJiY2kuY28udWsvaW1hZ2VzL2ljLzMwMDB4MzAwMC9wMGQzeDl6OC5qcGc%3D/aHR0cHM6Ly93d3cucG9kY2hhc2VyLmNvbS9pbWFnZXMvbWlzc2luZy1pbWFnZS5wbmc%3D)](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/202210291200-gmt-153830080)
+
+### [時事一周 2022年10月29日12:00 GMT](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/202210291200-gmt-153830080)
+
+
+
+
+
+
+
+[14 days ago](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/202210291200-gmt-153830080)[1h](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/202210291200-gmt-153830080)
+
+本周節目內容：英國新首相迅速當選就任 | 習近平打破成規再度連任 | 中共二十大之後會怎樣對台灣 | 英國生活點滴：女華僑被謀財害命案電視宣判 | 專題：歐洲海面大批天然氣船等待入港 | 專題：印度「商品及服務稅」稅率現爭議 | 記者來鴻：羅馬暴君的痕跡幾乎被消滅 | 華人談天下：美國流動墮胎車應運而生
+
+
+
 
 
 [![時事一周 2022年10月22日12:00 GMT](https://cachedimages.podchaser.com/128x128/aHR0cDovL2ljaGVmLmJiY2kuY28udWsvaW1hZ2VzL2ljLzMwMDB4MzAwMC9wMGQzeDl6OC5qcGc%3D/aHR0cHM6Ly93d3cucG9kY2hhc2VyLmNvbS9pbWFnZXMvbWlzc2luZy1pbWFnZS5wbmc%3D)](https://www.podchaser.com/podcasts/bbc-newsweek-cantonese-494252/episodes/202210221200-gmt-153240470)
